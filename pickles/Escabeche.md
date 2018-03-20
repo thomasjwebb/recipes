@@ -4,7 +4,7 @@ Combining the best of various recipes I've found online after many experiments t
 
 Make the brine, making sure to dissolve the sugar and salt fully:
 - 2/3 cup distilled vinegar
-- 1/4 cup water
+- 1/3 cup water
 - 1 tbsp sugar
 - 2 tsp salt
 
