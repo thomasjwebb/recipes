@@ -18,6 +18,6 @@ After the mixture is solidified, cut into squares (Western Sicilian style) or tr
 
 ## Variants
 
-Italian-American style - add oregano and minced garlic
-Arab style - add minced garlic and onion as well as cumin
+Italian-American style - add oregano and minced garlic  
+Arab style - add minced garlic and onion as well as cumin  
 Shan tofu - leave out the parsley and use in traditional Burmese dishes. Can also be used in place of tofu in many East Asian dishes. 
