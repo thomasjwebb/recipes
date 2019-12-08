@@ -1,4 +1,4 @@
-# Atotle
+# Atole
 
 Ingredients:
 
