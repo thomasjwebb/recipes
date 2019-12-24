@@ -11,18 +11,18 @@ Heat and brush æbleskiver (or takoyaki, for smaller æbleskiver) pan with oil. 
 
 Variations:
 - "Solvang style" - omit the apples and top with raspberry jam and the sugar
-- "American breakfast style" - put chopped pecans in the batter and omit the applesauce, and serve with maple syrup instead of powdered sugar. Serve with a side of bacon, coffee with whiskey in it and a gun.
+- "American breakfast style" - put chopped pecans in the batter and omit the applesauce, and serve with maple syrup instead of powdered sugar
 - "Æbleskiver-style Poffertjes" - use the dough in a poffertje pan and serve with the applesauce and powdered sugar on top
 
 ## Other recipes:
 I've also found [this one](http://www.maplespice.com/2009/01/vegan-aebleskiver.html) to be pretty good:
 
-160g plain flour
-1 1/4 tsp baking powder
-1/8 heaped tsp salt
-4 tsp caster sugar
-150g plain, unsweetened soy yogurt
-100ml soy or almond milk (can be sweetened or unsweetened)
-90g vegan margarine, melted (I use 'Pure' sunflower)
-1/4 tsp vanilla extract
-vegetable oil for the pan
+- 160g plain flour
+- 1 1/4 tsp baking powder
+- 1/8 heaped tsp salt
+- 4 tsp caster sugar
+- 150g plain, unsweetened soy yogurt
+- 100ml soy or almond milk (can be sweetened or unsweetened)
+- 90g vegan margarine, melted (I use 'Pure' sunflower)
+- 1/4 tsp vanilla extract
+- vegetable oil for the pan
