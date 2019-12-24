@@ -2,7 +2,7 @@
 
 (This is a rough recipe, many specific amounts are missing still)
 
-Use the dough for oliebollen, omit the raisins and add more water to get to thicker pancake batter consistency. Let sit until it starts bubbling. You may use baking powder instead of yeast if you don't have time to wait for that.
+Use the [dough for oliebollen](Oliebollen.md), omit the raisins and add more water to get to thicker pancake batter consistency. Let sit until it starts bubbling. You may use baking powder instead of yeast if you don't have time to wait for that.
 
 Apple sauce:
 Shred apples and heat in pan with some ground cardamom and ground cinnamon until it's a nice paste-like consistency.
