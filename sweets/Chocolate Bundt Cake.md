@@ -1,5 +1,7 @@
 # Chocolate Bundt Cake
 
+This recipe was originally up [here](http://minimomo76.exblog.jp/7691759/) but has been taken down and I can't find any archives of it (I looked on archive.org and other blog posts were cached but alas not this one). So my crappy translation into English will have to do!
+
 coffee 430ml
 cocoa powder 160ml
 sugar 375ml
