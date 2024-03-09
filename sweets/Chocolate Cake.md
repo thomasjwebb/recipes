@@ -21,7 +21,7 @@ Instructions:
 
 1. Brew coffee. Even cheap coffee is okay. Make it as strong or weak as you like it for the flavor.
 
-2. Heat oven to 163C. Oil the cake pan.
+2. Heat oven to 163°C/325°F. Oil the cake pan.
 
 3. In a small bowl, mix some of the coffee and the cocoa powder. Make sure the cocoa powder dissolves
 
